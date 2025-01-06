@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @KrunalParmar0
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning BCA
-- 💞️ I’m looking to collaborate Anywher
+- 💞️ I’m looking to collaborate Anywhere
 - 📫 How to reach me Krunalparmar7150@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Nothing. 
